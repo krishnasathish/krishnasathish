@@ -1,5 +1,5 @@
 # 💫 About Me:
-Building Robotics Platforms for Industry 4.0 and 5.0 Technologies, Looking to collaborate on the same
+Building Robotics Platforms for Industry 4.0 and 5.0 Technologies, Looking to collaborate- Reach me on my LinkedIn
 
 
 ## 🌐 Socials:
